@@ -1,1 +1,1 @@
-# amansinghpariharquartoreport
+# aman_singh_parihar_quarto_report
